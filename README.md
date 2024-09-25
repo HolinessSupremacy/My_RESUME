@@ -4,4 +4,4 @@ Domain of interest: Artificial Intelligence and Machine Learning, GenAI, Softwar
 PLEASE FIND RESUME ATTACHED BELOW..
 
 
-[MY_RESUME.pdf](https://github.com/user-attachments/files/17005934/MY_RESUME.pdf)
+[Holiness_Mhlanga_Resume.pdf](https://github.com/user-attachments/files/17136793/Holiness_Mhlanga_Resume.pdf)
